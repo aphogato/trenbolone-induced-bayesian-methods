@@ -1,3 +1,3 @@
 # Bayesian Methods
 
-## We're getting samrt as fuck with this one!🗣️‼️
+## We're getting smart as fuck with this one!🗣️‼️
